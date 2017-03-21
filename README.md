@@ -1,0 +1,2 @@
+# mazlumun-d-nyas-
+projelerim
